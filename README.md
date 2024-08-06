@@ -7,11 +7,14 @@
 </p>
 
 <p align="center">
-𝐀𝐌𝐘  :  𝐓𝐀𝐁𝐑𝐈𝐒
+HII! call me amy or tabris
 </p>
 <p align="center">
-she : her
-
+im always off-tab so w2i!!
 <p align="center">
+<p align="center">
+pls int i dont bite 😭
+<p align="center">
+
   <img src="https://64.media.tumblr.com/32932796688a6036aaf707f881ad40aa/ce4af54fa3a5a68c-cc/s2048x3072/19f8b7b06c19590eb05b3f5dc4b7edb9eafdf8be.pnj"/>
 </p>
